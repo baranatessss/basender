@@ -34,7 +34,7 @@ Only   160$  a Month.
  @baranates & @Mislived
 
  (Contact us to purchase a license.)
+ We can show video evidence or use @coinescrowbot
 
 ![851eeeb7-1d8e-4353-9052-8719485b9dbc](https://github.com/baranatessss/basender/assets/141864619/b0a6e981-66bc-4d62-9fc9-b642a907fe2e)
 
-We can show video evidence or use @coinescrowbot
